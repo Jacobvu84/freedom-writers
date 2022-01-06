@@ -8,4 +8,4 @@ Xây dựng tinh thần tự học dựa trên tư duy phản biện và tư duy
 
 Chia sẻ những góc nhìn mới để thay đổi tư duy nhằm mở ra con đường cho những ai đang tìm đường phục thiện.
 
-== C
+== Cộng đồng Tester 2.0 == 
