@@ -2,7 +2,9 @@
 
 Truyền tải thông điệp cho công đồng bằng những **trải nghiệm thực của bản thân** để giải đáp các vấn đề của nhau.
 
-Nếu bạn đang rơi vào trạng thái bơ vơ hoặc có những câu hỏi về tương lai nghề nghiệp của mình thì đây là một cộng đồng đáng để tham gia. Nó không mang lại nhiều giá trị với những người không cầu thị và thích làm việc theo thói quen c
+Nếu bạn đang rơi vào trạng thái bơ vơ hoặc có những câu hỏi về tương lai nghề nghiệp của mình thì đây là một cộng đồng đáng để tham gia. Nó không mang lại nhiều giá trị với những người không c
+
+Nếu mục tiêu của bạn chỉ đơn giản là cần công việc để thu nhập trang trải cuộc sống mà không có mục tiêu phát triển tư duy của bản thân thì đây là nơi không phù hợp.
 
 Từ vấn đề của một cá nhân nào đó, cộng đồng cùng đóng góp ý kiến để tìm ra bối cảnh tổng quan phía sau của câu chuyện đó. Viết bài chia sẻ dưới dạng bài học nhằm tìm ra nguồn gốc của vấn đề dựa trên tư duy phản biện, tránh làm việc theo thói quen, theo mẫu mà không có phương pháp luận ( lý thuyết )
 
