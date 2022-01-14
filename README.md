@@ -9,4 +9,6 @@ Từ vấn đề của một cá nhân nào đó, cộng đồng cùng đóng g�
 
 Chia sẻ những góc nhìn mới để thay đổi tư duy nhằm mở ra con đường cho những ai đang tìm đường phục thiện. Chỉ khi bạn thực sự phục thiện bạn mới có động lực.
 
+Tham gia nhóm skype: https://join.skype.com/wa1ZUtAY1bbA
+
 == Cộng đồng Tester 2.0 == 
