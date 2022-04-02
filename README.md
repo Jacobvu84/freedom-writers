@@ -1,6 +1,6 @@
 # Freedom Writers
 
-Không cần bạn phải là nhà văn. Bây giờ có rất nhất nhiều công việc freelancer và trở thành một nhà văn tự do cũng không phải là ngoại lệ. 
+Không cần bạn phải là nhà văn được hiệp hội nhà văn công nhận. Ngay bây giờ có rất nhất nhiều công việc freelancer và trở thành một nhà văn tự do cũng không phải là ngoại lệ. 
 
 Một phần của cuộc sống là cảm xúc, cảm nhận về cuộc sống. Tại sao bạn không kể cho người khác nghe về thế giới qua những cảm xúc của mình.
 
